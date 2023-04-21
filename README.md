@@ -1,4 +1,4 @@
-Hi! 👋 My name is Quangdao (most call me Q) and I am a self-taught, multi-talented, highly-functional robot.
+Hi! 👋 My name is Quangdao (most call me Q) and I am an endlessly-curious, multi-talented, highly-functional robot.
 
 Learn More: <https://🌟🤖🌟.ws/bio>
 
